@@ -1,5 +1,7 @@
 ### **​报名地址：http://iitc.top**
 ![动态图](https://github.com/user-attachments/assets/0cb89f5f-56ef-4581-8d51-5b7b886c46c2)
+<img width="1663" height="2218" alt="微信图片_20260110160136_270_1340" src="https://github.com/user-attachments/assets/63fcd2a1-fb8f-405e-865b-c803ca5a9f61" />
+
 ​
 ### **学校推荐的IITC证书：是“避坑指南”还是“就业保险”？一份给你的理性分析**
 
